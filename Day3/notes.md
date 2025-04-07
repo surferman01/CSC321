@@ -1,0 +1,3 @@
+# Day 3 (4/7/2025)
+
+- will push terms he covered later when he posts...
